@@ -4,8 +4,8 @@
 
 ## ᖴOᒪᒪOᗯ
 
-- [Twitter](https://www.twitter.com/ishaileshmisra)
-- [Instagram](https://www.instagram.com/ishaileshmishra)
+
+- [Instagram](https://www.instagram.com/mehta_virag)
 
 ## SᑕᖇEEᑎSᕼOTS
 
